@@ -1,0 +1,1 @@
+This mug cake is a simple, quick, and yummy way to satisfy your sweet tooth! It's basically a small cake, made within a mug. So get ready to make your own chocolate mug cake with this recipe!
